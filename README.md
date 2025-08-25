@@ -1,5 +1,5 @@
 - Riley Walker (she/her)
-- CS freshman undergraduate @ Penn State University
+- CS sophomore undergraduate @ Penn State University
 - contact: rileyw2224@gmail.com or rew5596@psu.edu
 
 
